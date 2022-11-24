@@ -1,1 +1,1 @@
-# social_media_methods
+# Social Media in Education - Methods Workshop
